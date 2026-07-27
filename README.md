@@ -5,7 +5,7 @@
 HDshield Glass chuyên cung cấp kính cường lực bo viền và phụ kiện điện thoại cao cấp, cảm ứng mượt, chống trầy xước 9H, chống nhìn trộm.
 
 ### 🌟 Sản Phẩm Nổi Bật
-- **COMBO 3 Kính Bo Viền** - Dành cho iP 16Pro / 17 / 17Pro
+- **COMBO 3 Kính Bo Viền** - Dành cho iP 7plus / 17 / 17Promax
 - **COMBO 3 Kính Chống Nhìn Trộm** - Bảo vệ toàn diện
 - Ốp lưng da, cáp sạc nhanh cao cấp
 
